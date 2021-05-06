@@ -4,7 +4,8 @@
 
 :fairy_woman: - I'm Lívia<p>
 :umbrella: - I live in Brazil - São Paulo, SP - Southeast<p>
-🎓 - Professional qualification: Radio/Tv and Web full-Stack Developer<p>
+🎓 - Professional qualification: Radio/Tv 
+🚀 Bootcamp Generation Brasil - Full Stack developer Web<p>
 🥀 - Pronouns: She/Her<p>
 :sushi: - Fun fact: Passionate about Asian culture<p>
 
