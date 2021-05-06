@@ -1,4 +1,6 @@
-### Hi there :space_invader: welcome to my profile                                                      
+<img align="right" width="400px" src="https://github.com/liviaguimaraes92/liviaguimaraes92/blob/main/sailor3.gif">
+
+##### Hi there :space_invader: welcome to my profile                                                      
 
 :fairy_woman: - I'm Lívia Lima Guimarães<p>
 :umbrella: - I live in Brazil - São Paulo, SP - Southeast<p>
