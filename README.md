@@ -1,4 +1,4 @@
-<img align="right" width="400px" src="https://64.media.tumblr.com/51b20c284d9853dcd550c15f9d988eba/tumblr_misdlqWvzl1ro20uwo1_500.gif">
+<img align="right" width="400px" src="https://github.com/liviaguimaraes92/liviaguimaraes92/blob/main/Startup%20life-pana.png">
 
 ## Hi dear :space_invader: welcome to my profile                                                      
 
