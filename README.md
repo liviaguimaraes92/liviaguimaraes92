@@ -2,7 +2,7 @@
 
 ## Hi dear :space_invader: welcome to my profile                                                      
 
-:umbrella: - I live in Brazil - São Paulo, SP - Southeast<p>
+:umbrella: - I live in Brazil - São Paulo, SP <p>
 🎓 - Professional qualification: Radio/Tv<p> 
 🚀 Bootcamp Generation Brasil - Full Stack developer Web<p>
 🥀 - Pronouns: She/Her<p>
